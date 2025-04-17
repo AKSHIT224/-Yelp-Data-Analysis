@@ -104,7 +104,7 @@ These visuals supported our business idea and helped communicate insights clearl
 ## 📞 Contact
 
 *Akshit Bhandari*  
-📧 akshit.bhandari@example.com  
-📞 +1 (780) 123-4567
+📧 abhandari78@norquest.ca  
+📞 +1 (437) 970-9974
 
 ---
